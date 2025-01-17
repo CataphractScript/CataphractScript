@@ -3,4 +3,4 @@
 
 我々は敗北したが、我々の記憶は今も生きている。
 
-(It is not about japanese shit)
+(It is not about Japanese things)
